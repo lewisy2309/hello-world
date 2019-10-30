@@ -1,3 +1,5 @@
 # hello-world
-what's good guys i'm new on this website and in programming.
-and i'd like to know a bit more about that
+
+hi dudes i'm thelewistime new in programming and i'd like to know more about that
+i'm very anthousiastic to be here with you guys 
+
